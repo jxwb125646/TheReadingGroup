@@ -1,2 +1,2 @@
 # TheReadingGroup
-Contribute, share, and have fun!
+Learn Together, Share Together, Thrive Together!
