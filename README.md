@@ -1,2 +1,2 @@
 # TheReadingGroup
-Focus on interesting paper!
+Contribute, share, and have fun!
